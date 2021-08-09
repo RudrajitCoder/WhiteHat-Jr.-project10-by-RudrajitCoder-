@@ -1,2 +1,1 @@
-# WhiteHat-Jr.-project10-by-RudrajitCoder-
-Hello!!!
+# c9-STUD-TEACHER
